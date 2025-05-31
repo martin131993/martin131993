@@ -9,4 +9,5 @@
 ## 📫 Contacto
 
 - 📧 jmartin.huasasquiche@gmail.com
+- [Celular] 987332071
 - 💼 [LinkedIn](https://linkedin.com/in/josem-huasasquiche-analisisybasededatos)
